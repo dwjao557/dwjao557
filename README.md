@@ -8,7 +8,7 @@ Meu nome é João Lopes
 
 ### Você pode entrar em contato comigo 📫! 
 
-joaolopescorporativo@fgmail.com
+joaolopescorporativo@gmail.com
 
 @_jao_mx
 
