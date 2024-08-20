@@ -8,7 +8,7 @@ Meu nome é João Lopes
 
 ### Você pode entrar em contato comigo 📫! 
 
-00001100617127sp@al.educacao.sp.gov.br
+joaolopescorporativo@fgmail.com
 
 @_jao_mx
 
